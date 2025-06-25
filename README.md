@@ -1,2 +1,0 @@
-# uragiri
-Uragiri Clothing Brand
